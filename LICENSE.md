@@ -1,0 +1,1 @@
+The search icon at the top of the website is provided by logomakr.com.
